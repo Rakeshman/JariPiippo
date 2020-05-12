@@ -1,37 +1,10 @@
-## Welcome to GitHub Pages
+## Jari Piipon sotarikokset 
 
-You can use the [editor on GitHub](https://github.com/Rakeshman/JariPiippo/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Oli vuosi 1939 Jari Piippo oli hitlerin oikea käsi hän määräsi että kaikki väärän väriset (Nekrut) teloitetaan ja valkoinen rotu puhdistetaan samoin Jartsa halusi että kaikki juutalaiset tapetaan koska he eivät sopineet jartsan yhteiskuntaan.
+Ja niin Jartsa Tappoi miljoonia nekruja ja juutalaisia hyvällä omatunnolla.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+### Jarin ja Kristan tapaaminen  
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Rakeshman/JariPiippo/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+OLi vuosi 2003 jartsa oli juuri päässyt baariin kouluttamaan mutakuonoja ja saman tien hänen silmiinsä iskee kaunokainen Krista "Krisu" Puumala hän ei enään pystynyt olla vain ja katsoa hänen oli pakko mennä puhumaan hänelle ja hän sanoi ne kauniit kuuluisat sanat "ole mun vaimo tai mä hakkaan sut" Kristalla oli vain yksi vaihtoehto.... JUOSTA hän lähti juoksemaan kovaa vauhtia ulos mutta Jartsa pääsi yllättämään parkkipaikalla ja löi Kristalta tajun pois ja pisti takakonttiin.
+Ja niin he elivät elämänsä onnellisesti loppuun saakka.
