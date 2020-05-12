@@ -27,7 +27,7 @@ Ja niin he elivät elämänsä onnellisesti loppuun saakka.
 ![1cc066bd635fd4bd575efa73f8dd9b1e](https://user-images.githubusercontent.com/65232933/81698990-6e3d1900-946f-11ea-9c9c-84c19d550afc.png)
 
 
-Tekijä : B0B
+Tekijä : B0B Energia-alojen ammattiosaaja.
 
 
 TEKIJÄNOIKEUDET : KAIKKI TEKIJÄNOIKEUDET KUULU B0BILLE KOPIOINTI EHDOTTAMASTI KIELLETTYÄ
