@@ -3,7 +3,7 @@
 Oli vuosi 1939 Jari Piippo oli hitlerin oikea käsi hän määräsi että kaikki väärän väriset (Nekrut) teloitetaan ja valkoinen rotu puhdistetaan samoin Jartsa halusi että kaikki juutalaiset tapetaan koska he eivät sopineet jartsan yhteiskuntaan.
 Ja niin Jartsa Tappoi miljoonia nekruja ja juutalaisia hyvällä omatunnolla.
 
-Lähde :              ![63a1c1a0f07d864e2ec8c4aa8faee9c8](https://user-images.githubusercontent.com/65232933/81699838-8cefdf80-9470-11ea-9011-be0342426295.png)
+Lähde :                           ![63a1c1a0f07d864e2ec8c4aa8faee9c8](https://user-images.githubusercontent.com/65232933/81699838-8cefdf80-9470-11ea-                          9011-be0342426295.png)
 
 
 
