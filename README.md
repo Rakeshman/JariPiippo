@@ -31,3 +31,48 @@ Tekijä : B0B Energia-alojen ammattiosaaja.
 
 
 TEKIJÄNOIKEUDET : KAIKKI TEKIJÄNOIKEUDET KUULU B0BILLE KOPIOINTI EHDOTTAMASTI KIELLETTYÄ
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![ezgif com-video-to-gif](https://user-images.githubusercontent.com/65232933/81720458-1f9b7900-9487-11ea-8154-bb2969eaf344.gif)
+
